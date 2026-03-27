@@ -23,9 +23,9 @@ The competitive environment in the ESS market is characterized by technological 
 
 Key growth drivers include increasing renewable energy installations, rising electricity demand, and the need for grid flexibility. Governments worldwide are introducing policies and incentives to accelerate deployment of storage systems, particularly to support solar and wind power integration. At the same time, energy storage systems are becoming essential for backup power, peak shaving, and microgrid development. However, the market faces challenges such as high upfront costs, supply chain constraints, and technology standardization issues. Despite these challenges, declining battery prices and advancements in storage technologies are expected to improve adoption rates.
 
-According to the study by Next Move Strategy Consulting, the global **[Energy Storage Systems Market](https://www.nextmsc.com/report/high-performance-coatings-hpc-market-mc3851)** size was valued at **USD 460.95 billion** in 2024, and is expected to be valued at **USD 531.94 billion** by the end of 2025. The industry is projected to grow, hitting **USD 1088.65 billion** by 2030, with a **CAGR of 15.4 %** between 2025 and 2030.
+According to the study by Next Move Strategy Consulting, the global **[Energy Storage Systems Market](https://www.nextmsc.com/report/energy-storage-systems-ess-market-ep3852)** size was valued at **USD 460.95 billion** in 2024, and is expected to be valued at **USD 531.94 billion** by the end of 2025. The industry is projected to grow, hitting **USD 1088.65 billion** by 2030, with a **CAGR of 15.4%** between 2025 and 2030.
 
-**[Download FREE Sample](https://www.nextmsc.com/high-performance-coatings-hpc-market-mc3851/request-sample)** 
+**[Download FREE Sample](https://www.nextmsc.com/energy-storage-systems-ess-market-ep3852/request-sample)** 
 
 **Future Outlook**
 
